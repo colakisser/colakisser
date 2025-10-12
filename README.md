@@ -6,4 +6,3 @@
 <p align="center">
    hiya!!! i usually sit by myself so c+h is very encouraged no matter who you are! i also like friending people so if you want just send me a frq!
    my discord is @colakisser (im mostly on there)
-</p>
