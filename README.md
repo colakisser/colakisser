@@ -1,6 +1,6 @@
 ![text](https://files.catbox.moe/h0p0bn.png)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=colakisser)
+![hi guys](https://komarev.com/ghpvc/?username=colakisser)
 </p>
   
 <p align="center">
