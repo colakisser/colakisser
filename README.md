@@ -1,4 +1,4 @@
-![text]((https://files.catbox.moe/h0p0bn.png))
+![text](https://files.catbox.moe/h0p0bn.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=colakisser)
 </p>
